@@ -1,1 +1,0 @@
-# davjum.github.io
